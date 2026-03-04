@@ -16,7 +16,7 @@ Learning, growth, family
 ### What you are working towards ###
 To make my ideas a reality.
 
-### Reflection ##
+## Reflection ##
 Creating a personal logo was challenging because it had to truly represent me. I chose an octopus for its adaptability and creativity, with eyes referencing the umlaut in my surname and my own vision differences. The flowing tentacles mimic waves and subtly form a “J” for my first name, Jay. Blue reflects the ocean theme I love, orange my favorite color. I removed IT-related elements to focus on problem-solving, design, and creativity rather than the stereotype of “just the IT person.” This design captures my identity, values, and approach to life.
 
 
