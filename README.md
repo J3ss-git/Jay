@@ -5,7 +5,7 @@ I have added to files: icon and infographic.
 
 ## Icon ##
 The icon simple outline of an octopus which is moving. I gave it eyes representing the umlauts in my surname, a lot of people forget it, and I think it's something I would like to remember and include. Also made the eyes two different sizes, as I do have one weaker eye.
-I used blue and orange as my main colours as blue is colour representing my theme of the ocean and orange is one of my favourite colours. 
+I used blue and orange as my main colours as blue is colour representing my theme of the ocean and orange is one of my favourite colours. I also left the icon rough so that lines don't seem perfectly straight so that I am human and my flaws makes me who I am.
 
 ## Infographic ##
 The octopus represents adaptability and creativity. The eyes represent the umlaut in my surname, connecting the symbol to my identity. The flowing tentacles represent the movement of waves and the feeling of going with the flow.
