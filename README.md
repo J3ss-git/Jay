@@ -1,4 +1,7 @@
 # Assignment 1: Designing Yourself
 
 This repository contains my personal logo and infographic.
-It is basic outline of octopus logo represents motion, creativity 
+The basic outline of the octopus logo represents motion, creativity, and adaptability.
+My love is the ocean, and an octopus is one of my favorite animals. 
+
+
